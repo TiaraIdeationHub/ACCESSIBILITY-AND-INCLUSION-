@@ -1,0 +1,1 @@
+Undeserved communities consist of people that are denied their abilities through unavailability of information, they are like people with super powers but are not aware of it. Likewise people with disabilities, their greatest form of disability is non-inclusion, denying them from growth and skills that will serve as form of livelihood thereby fostering their quotas in society.
